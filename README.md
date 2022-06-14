@@ -1,2 +1,2 @@
 # My-Revolution
-Revolution 6 month later
+Revolution 6 month later JUNI-DECEMBER
